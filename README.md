@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **rebeccaogden97@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1zLg59utc8a2_ifGVTFmTwyvTpvnT2xx9Kkwp_jzJ38M/edit?usp=sharing](https://docs.google.com/document/d/1zLg59utc8a2_ifGVTFmTwyvTpvnT2xx9Kkwp_jzJ38M/edit?usp=sharing)
-
 - ⚡ Fun fact **I have lived in 6 states, 5 of which started with a vowel.**
 
 <h3 align="left">Connect with me:</h3>
